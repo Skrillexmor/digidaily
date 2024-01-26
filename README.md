@@ -1,0 +1,2 @@
+# digidaily
+SEO
